@@ -1,2 +1,2 @@
 # cure-for-depression
-Just be
+Just be happy
